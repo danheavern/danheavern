@@ -2,4 +2,4 @@
 - 👀 I’m interested in ... Simplifying complex problems and learning new technologies
 - 🌱 I’m currently learning ... How to work remotely
 - 💞️ I’m looking to collaborate on ... Projects with meaningful ambitions
-- 📫 How to reach me ... danheavern@gmail.com or @danheavern on Twitter
+- 📫 How to reach me ... danheavern@gmail.com
